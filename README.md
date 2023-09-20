@@ -10,3 +10,14 @@ Um pouco sobre mim👍
 - _Estou aprendendo JAVASCRIPT_ 
 - _Utilizo este perfil para compartilhar meus projetos_
 - 
+
+!{}(
+
+
+
+
+
+
+
+
+)
