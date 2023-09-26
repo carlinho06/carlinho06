@@ -11,13 +11,4 @@ Um pouco sobre mim👍
 - _Utilizo este perfil para compartilhar meus projetos_
 - 
 
-!{}(
-
-
-
-
-
-
-
-
-)
+![](https://media.tenor.com/xggcQgDU3mkAAAAd/minecraft-warden.gif)
