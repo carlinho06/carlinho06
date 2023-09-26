@@ -9,6 +9,6 @@ Um pouco sobre mim👍
 - $♡♡ ♤ 《Sou/ aluno/ do/ professor /vitor》 ♤ ♡♡$
 - _Estou aprendendo JAVASCRIPT_ 
 - _Utilizo este perfil para compartilhar meus projetos_
-- 
+  
 
 ![](https://media.tenor.com/xggcQgDU3mkAAAAd/minecraft-warden.gif)
